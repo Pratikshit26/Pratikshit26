@@ -1,3 +1,3 @@
 
-- 🔭 I’m currently working on **brainpanda**
+- 🔭 I’m currently working at **brainpanda**
 
